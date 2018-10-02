@@ -1,1 +1,4 @@
-# Add your profile here!
+# Eddie Kaleb
+
+# Computer Science 
+Federal University of Campina Grande
